@@ -46,3 +46,9 @@ tem que saber programar é diferente colocar dentro do server um codigo na cloud
 Sabes tem uns necoginhos devsss ser as tals apis, cookies, jasons and sessions..
 tudos fodaoss, caralhos esses manos gravataidos desss seila... 
 
+- cheios dos livraoo, vai leeerrrrrrrrrrrr isssssssssssssssssssssso tudosoooooooooooooooooooooooooooo..
+- adoro aquelas piadinhas da perna torta, dos mongois balacando igual bunecao do posto,, ess fodao, amorr, sabes grandes humoristas,,
+- comes aquela adriana,, mostra o hacks para ela, ela é piranhonaaaaa, vai saber de alguma coisaaa, mulher de general europeusss, pega ela amor... sabes deves ser as balinhas e voos farmaceuticos.
+- nao queria falar, mais esses piadas é facil de fazer, tudos probresss, falais igual faveladosss, todos otariozao amam sportssss, minha parada es programarrrr.
+- comprar bmw m6, uns pradas, uns vogue, jonh jonh, Louis Vuitton, channel... gucci, versace ficam linadamm tu
+
