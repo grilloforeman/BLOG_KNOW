@@ -53,3 +53,5 @@ tudos fodaoss, caralhos esses manos gravataidos desss seila...
 - comprar bmw m6, uns pradas, uns vogue, jonh jonh, Louis Vuitton, channel... gucci, versace ficam linadamm tu
 
 [![oi](corretor_orgao.png)](https://www.youtube.com/watch?v=zZ5fYw-Qcao&list=PLr-k7adEu3uFO-FwIZGbL1MIA7rVMr7QI&index=60&pp=iAQB)
+
+[![show_silvio](https://www.olhardireto.com.br/imgsite/noticias/fausto-fantini.jpg)](https://www.youtube.com/watch?v=_5Rtq7LzP1Y&pp=ygUbc2hvdyBzaWx2aW8gaGVybWVzIGUgcmVuYXRv)
