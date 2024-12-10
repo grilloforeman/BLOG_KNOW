@@ -119,6 +119,16 @@ nessas coisas de contra CV, TCP seila,
 
 realmente so elite mesmo e o resto bando de otarios...
 
+# part eLLon
+
+VOu usar as palavras dele, e falta o livro do grande biografo,,
+cara essa galera de banco pelas chatices, e todas outras pessoas
+seila de blogs dessas coisas, tenho eu e o MUSK sobre bancos no livro
+dele que repetem a MANADA, minha palavra MOnks, tem a parte dele no banco
+ante de paypal e confinity esse o nome, os bancos ganham dinheiro com
+a desgraça dos outros países e recebem ou recebiam mais atraves do gov
+EUA que comprava ou compra essa dividas, sabe isso é facil de....
+
 
 
 
