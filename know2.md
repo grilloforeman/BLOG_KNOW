@@ -2,4 +2,4 @@
 
 cloud of alibaba de telephone
 
-![phone](alibaba_cloud_phone.jpg)
+![phone](alibaba_cloud_phone.png)
