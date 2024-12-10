@@ -97,7 +97,8 @@ fabiano um burro pcerj
 
 muito burros, nada de codigos, muitos burros
 
-felipe é um otario anarquista grande otariozao
+felipe é um otario anarquista grande otariozao, cruz gigente nas costas,,, sabe diz que é orixa, tentou pm,
+essas coisas de jiu-jitsu de otario, grande otario, essa porra de roadsec seila, seial,.....
 
 bando de otariosss
 
