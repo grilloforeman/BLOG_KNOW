@@ -59,3 +59,15 @@ tudos fodaoss, caralhos esses manos gravataidos desss seila...
 [![massacration](https://www.olhardireto.com.br/imgsite/noticias/fausto-fantini.jpg)](https://www.youtube.com/watch?v=3yIpcodJjBk)
 
 [![massacration](https://www.olhardireto.com.br/imgsite/noticias/fausto-fantini.jpg)](https://www.youtube.com/watch?v=gK9R5d4NiUA)
+
+
+##Part3
+
+
+Amor aqueles amigos antigos todos cuzao, contas os passados deles ai maor.
+- sim aquele outro amanda xono por ele, jessica amava ele, mas amanda viu ou disse que samuels pegava ela, eles dava tranco na oi,
+  chegavam todos tardes nas aulas, nunca ia, vivia pertubando,, ela gosta de homem pequeno otariozaoo.
+- o outro seila, o pai seila era medico ou seila o que, morais nas taquaras, quase nunca foram em aula alguma, passou em duas materias, es
+- fodas, acho que nem em casa ficava, seila, vivias de fodas, amigos ate hoje dos primos das amandas, varios contatinhosss, ele seila
+- amas nao amas es uns fracos. sei-la seial, seila.... nunca foi nas aualas aos sabados, varias aualas... nuncas viz fotos de final
+- de anos com familias, sabes es fodas..
