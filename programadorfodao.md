@@ -89,6 +89,18 @@ e no  fianl igual mulher fazendo campanha publicitaria de algo... o desejo, ter 
 sociais, vairias vadiagens e nadas....
 
 
+IGOR é burro varios zeros
+
+aldember um burro pcerj
+
+fabiano um burro pcerj
+
+muito burros, nada de codigos, muitos burros
+
+felipe é um otario anarquista grande otariozao
+
+bando de otariosss
+
 
 
 
