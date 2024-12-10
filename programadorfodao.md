@@ -110,6 +110,15 @@ isabel.. rede social desde 2009 de bikine na praia,
 seila tudo, amiga do ronnie leca
 
 
+Nao falo nada esses AZUIS bolsonaristas, tijucanos, militares
+sao muito suco com pera, muitoooo, seial, nao queria falar
+mais essas mulheres tambem seilaa,, brancas que andam e trabalham
+com esses caras, seila, muito pera, seila, muito programa de seila
+de crimes, assalto, nao falo nada, e seila, gente branca que vota
+nessas coisas de contra CV, TCP seila, 
+
+realmente so elite mesmo e o resto bando de otarios...
+
 
 
 
