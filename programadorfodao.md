@@ -57,3 +57,5 @@ tudos fodaoss, caralhos esses manos gravataidos desss seila...
 [![show_silvio](https://www.olhardireto.com.br/imgsite/noticias/fausto-fantini.jpg)](https://www.youtube.com/watch?v=_5Rtq7LzP1Y&pp=ygUbc2hvdyBzaWx2aW8gaGVybWVzIGUgcmVuYXRv)
 
 [![massacration](https://www.olhardireto.com.br/imgsite/noticias/fausto-fantini.jpg)](https://www.youtube.com/watch?v=3yIpcodJjBk)
+
+[!(massacration](https://www.olhardireto.com.br/imgsite/noticias/fausto-fantini.jpg)](https://www.youtube.com/watch?v=gK9R5d4NiUA)
