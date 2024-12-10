@@ -71,6 +71,10 @@ Amor aqueles amigos antigos todos cuzao, contas os passados deles ai maor.
 - fodas, acho que nem em casa ficava, seila, vivias de fodas, amigos ate hoje dos primos das amandas, varios contatinhosss, ele seila
 - amas nao amas es uns fracos. sei-la seial, seila.... nunca foi nas aualas aos sabados, varias aualas... nuncas viz fotos de final
 - de anos com familias, sabes es fodas..
+- sabes us fracassados, sou windows, sou seila o que, agora hackers, pois fodas, outros sou seila o que es nada, nenhum codigo nada
+- de projetos de homens.
+- FRACASSADOS, sonhos seres seial o que
+  
 
  todos sos pensais em mulhess, sabes es fodas, nao pensais em outras coisas, normal, sabes que aprendis lendos livros de gente grande
 que entendes de projetos, voces tem que persisti nos que amas, nuncas desisteis, mais o que seis es simples, mentes ficais presas, cabecas
@@ -79,3 +83,18 @@ que entendes de projetos, voces tem que persisti nos que amas, nuncas desisteis,
  sabes es fodas, mais tem gentes que nao entendem os projetos todos, sabes o CEO ou seila o dono tem que passar as vezes metades para
  cada pessoas, tem pessoas que por melhor que sejaas nao faz o time, isso aprendi com SPORTS,, AS vezes cobrar, no final poderes falar
  maus de voces, sabes esses sites de fofoca de PALO ALTO, teres de politicos tambem nao somentes, sabes TMZs, caralhos es fodas...
+
+sabes voces queres algo tem que entender, na verdade igual ler revista de carros, jornais, sabes tudo, no final voce desejas aquilo,
+e no  fianl igual mulher fazendo campanha publicitaria de algo... o desejo, ter programar, e no final, igual esses boiolas de redes
+sociais, vairias vadiagens e nadas....
+
+
+
+
+
+
+
+
+
+
+
