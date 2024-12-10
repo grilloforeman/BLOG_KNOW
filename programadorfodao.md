@@ -72,10 +72,10 @@ Amor aqueles amigos antigos todos cuzao, contas os passados deles ai maor.
 - amas nao amas es uns fracos. sei-la seial, seila.... nunca foi nas aualas aos sabados, varias aualas... nuncas viz fotos de final
 - de anos com familias, sabes es fodas..
 
-- todos sos pensais em mulhess, sabes es fodas, nao pensais em outras coisas, normal, sabes que aprendis lendos livros de gente grande
-- que entendes de projetos, voces tem que persisti nos que amas, nuncas desisteis, mais o que seis es simples, mentes ficais presas, cabecas
-- pequenas, perdes vidas todas em amores, xororos, nao iguais nos amor, eus forte o homem macho, olho de tigre... sabes as pessoas tem
-- os desejos, os que fazem, sabe tipo nos que estudou, desejas algo... fazer algo, programar, ser fodao, estar no local do LOS ANGELES,
-- sabes es fodas, mais tem gentes que nao entendem os projetos todos, sabes o CEO ou seila o dono tem que passar as vezes metades para
-- cada pessoas, tem pessoas que por melhor que sejaas nao faz o time, isso aprendi com SPORTS,, AS vezes cobrar, no final poderes falar
-- maus de voces, sabes esses sites de fofoca de PALO ALTO, teres de politicos tambem nao somentes, sabes TMZs, caralhos es fodas...
+ todos sos pensais em mulhess, sabes es fodas, nao pensais em outras coisas, normal, sabes que aprendis lendos livros de gente grande
+que entendes de projetos, voces tem que persisti nos que amas, nuncas desisteis, mais o que seis es simples, mentes ficais presas, cabecas
+ pequenas, perdes vidas todas em amores, xororos, nao iguais nos amor, eus forte o homem macho, olho de tigre... sabes as pessoas tem
+ os desejos, os que fazem, sabe tipo nos que estudou, desejas algo... fazer algo, programar, ser fodao, estar no local do LOS ANGELES,
+ sabes es fodas, mais tem gentes que nao entendem os projetos todos, sabes o CEO ou seila o dono tem que passar as vezes metades para
+ cada pessoas, tem pessoas que por melhor que sejaas nao faz o time, isso aprendi com SPORTS,, AS vezes cobrar, no final poderes falar
+ maus de voces, sabes esses sites de fofoca de PALO ALTO, teres de politicos tambem nao somentes, sabes TMZs, caralhos es fodas...
