@@ -102,8 +102,11 @@ felipe é um otario anarquista grande otariozao
 bando de otariosss
 
 
+minha rede social nao tem bosta nenhuma que resovla nada....
+nunca botei nada alem de nada, zero de foto de nada....
 
-
+isabel.. rede social desde 2009 de bikine na praia,
+seila tudo, amiga do ronnie leca
 
 
 
