@@ -52,4 +52,4 @@ tudos fodaoss, caralhos esses manos gravataidos desss seila...
 - nao queria falar, mais esses piadas é facil de fazer, tudos probresss, falais igual faveladosss, todos otariozao amam sportssss, minha parada es programarrrr.
 - comprar bmw m6, uns pradas, uns vogue, jonh jonh, Louis Vuitton, channel... gucci, versace ficam linadamm tu
 
-[![oi](https://www.youtube.com/watch?v=zZ5fYw-Qcao&list=PLr-k7adEu3uFO-FwIZGbL1MIA7rVMr7QI&index=60&pp=iAQB)]
+[![oi](corretor_orgao.png)](https://www.youtube.com/watch?v=zZ5fYw-Qcao&list=PLr-k7adEu3uFO-FwIZGbL1MIA7rVMr7QI&index=60&pp=iAQB)
