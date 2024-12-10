@@ -130,6 +130,24 @@ a desgraça dos outros países e recebem ou recebiam mais atraves do gov
 EUA que comprava ou compra essa dividas, sabe isso é facil de....
 
 
+# part seila
+
+Estudei com alguns que sumiram do mapa, sabe esses fortes em programacao,
+o resto, sabe passava e olhava o netbeans a janelinha e tal, no final
+era fraco o negocio, sabe essa gente continua aqui,,, amigos de ibms
+e tals ficavam na entrada e alguns dos dois ali nao frequentavam
+as aulas, namoro, seila trabalha naqueles negocios, sabe a pessoa era
+toda torta, acho que seila... cada um no seu quadrado... tem gente
+seila muito otario, esses plays boy ou boazinhas, 
+
+
+a cidade do rio é um bando de bolsonaristas  ou otarios macumbeiros
+ou seila otarios ou pessoas normais ou retardados que nunca tentaram
+nada alem de cerveja e nada alem disso  e repetir os mesmos
+gestos nassao, tradicao bando de retardado, ou outros seila 7
+
+gestos de macados o negocio é ruim,. musica de grandes otarios de sambistas
+amigos de rede globo...
 
 
 
