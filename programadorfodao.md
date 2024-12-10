@@ -34,3 +34,15 @@
 -  eles sao azulllll...
 
 -  manda um hacker aiiii..
+
+
+## part 2
+
+Aqueles panacam, nao sabe com que esta mexendo, eu logico fodaooo..
+Tomaz aqui aqueles hack, os  manos nao sabe nada de iaas, paas, saas.
+
+tem que saber programar é diferente colocar dentro do server um codigo na cloud e levantares..
+
+Sabes tem uns necoginhos devsss ser as tals apis, cookies, jasons and sessions..
+tudos fodaoss, caralhos esses manos gravataidos desss seila... 
+
