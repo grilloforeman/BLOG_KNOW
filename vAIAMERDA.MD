@@ -33,18 +33,18 @@ O QUE É IMPORTANTE!!! CRIAR!!!! É O QUE É...
 ####vOCES SAO UNS MERDAS NAO VAO SER PROGRAMADORES FODOES WEB COMO EU, UM MVC STRUC OLHA BEM
 #my_playlist
 
-![JONBONES](https://www.youtube.com/watch?v=iNjdfwCJpG4&t=69s)
+[![JONBONES](https://www.youtube.com/watch?v=iNjdfwCJpG4&t=69s)]
 
-![JONBONES](https://www.youtube.com/watch?v=iNjdfwCJpG4&t=71s)
+[![JONBONES](https://www.youtube.com/watch?v=iNjdfwCJpG4&t=71s)]
 ### aQUI TUDO DO MAL DEPOIS OS BR FODOES
-![MADONA](https://www.youtube.com/watch?v=XS088Opj9o0)
+[![MADONA](https://www.youtube.com/watch?v=XS088Opj9o0)]
 
-![MIKETYSON](https://www.youtube.com/watch?v=R2RxpsS639I)
+[![MIKETYSON](https://www.youtube.com/watch?v=R2RxpsS639I)]
 
-![N9](https://www.youtube.com/watch?v=LJazLLboogM&pp=ygUYUk9OQUxETyBGRU5PTUVOTyBGVU1BTkRP)
+[![N9](https://www.youtube.com/watch?v=LJazLLboogM&pp=ygUYUk9OQUxETyBGRU5PTUVOTyBGVU1BTkRP)]
 
-![LISTAFODA](https://www.youtube.com/watch?v=jVj7TXmQDHE&pp=ygUWbWFyZWNoYWwgZmF2ZWxhIHZpdmUgNQ%3D%3D)
+[![LISTAFODA](https://www.youtube.com/watch?v=jVj7TXmQDHE&pp=ygUWbWFyZWNoYWwgZmF2ZWxhIHZpdmUgNQ%3D%3D)]
 
-![MCMARECHAL](https://www.youtube.com/watch?v=cXc9bRT2ouM)
+[![MCMARECHAL](https://www.youtube.com/watch?v=cXc9bRT2ouM)]
 
-![MAGOO](https://www.youtube.com/watch?v=K5yGZRjXzgM)
+[![MAGOO](https://www.youtube.com/watch?v=K5yGZRjXzgM)]
