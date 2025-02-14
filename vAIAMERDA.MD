@@ -40,12 +40,12 @@ O QUE É IMPORTANTE!!! CRIAR!!!! É O QUE É...
 ### aQUI TUDO DO MAL DEPOIS OS BR FODOES
 [![MADONA](https://www.jornaldocomercio.com/_midias/jpg/2024/05/05/afp__20240505__34qw8g3__v3__highres__topshotbrazilmusicmadonna-10554685.jpg)](https://www.youtube.com/watch?v=XS088Opj9o0)
 
-[![MIKETYSON]https://cdn.oantagonista.com/uploads/2024/11/Mike-Tyson-leva-bolada-milionaria-na-luta-contra-Jake-Paul-e1731768595178.jpeg](https://www.youtube.com/watch?v=R2RxpsS639I)
+[![MIKETYSON](https://cdn.oantagonista.com/uploads/2024/11/Mike-Tyson-leva-bolada-milionaria-na-luta-contra-Jake-Paul-e1731768595178.jpeg)](https://www.youtube.com/watch?v=R2RxpsS639I)
 
-[![N9](https://www.youtube.com/watch?v=LJazLLboogM&pp=ygUYUk9OQUxETyBGRU5PTUVOTyBGVU1BTkRP)]
+[![N9](https://terceirotempo.uol.com.br/imagens/96/33/arq_289633.jpg?1585679857=1585679857?1585679858)](https://www.youtube.com/watch?v=LJazLLboogM&pp=ygUYUk9OQUxETyBGRU5PTUVOTyBGVU1BTkRP)
 
 [![LISTAFODA](https://www.youtube.com/watch?v=jVj7TXmQDHE&pp=ygUWbWFyZWNoYWwgZmF2ZWxhIHZpdmUgNQ%3D%3D)]
 
-[![MCMARECHAL](https://www.youtube.com/watch?v=cXc9bRT2ouM)]
+[![MCMARECHAL](https://i0.wp.com/www.rapdab.com.br/wp-content/uploads/2023/01/FAVELA-VIVE.jpg?zoom=2&resize=780%2C470&ssl=1)](https://www.youtube.com/watch?v=cXc9bRT2ouM)
 
-[![MAGOO](https://www.youtube.com/watch?v=K5yGZRjXzgM)]
+[![MAGOO](https://camoesradio.com/ewrt87u6ythghrhfg/2023/10/baco-exu.jpg)](https://www.youtube.com/watch?v=K5yGZRjXzgM)
