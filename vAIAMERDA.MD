@@ -33,7 +33,7 @@ O QUE É IMPORTANTE!!! CRIAR!!!! É O QUE É...
 ####vOCES SAO UNS MERDAS NAO VAO SER PROGRAMADORES FODOES WEB COMO EU, UM MVC STRUC OLHA BEM
 #my_playlist
 
-[![JONBONES](https://www.youtube.com/watch?v=iNjdfwCJpG4&t=69s)]
+[![JONBONES](https://dmxg5wxfqgb4u.cloudfront.net/styles/athlete_bio_full_body/s3/2025-01/5/JONES_JON_L_BELT_11-16.png?itok=CUPv7ubQ)](https://www.youtube.com/watch?v=iNjdfwCJpG4&t=69s)
 
 [![JONBONES](https://www.youtube.com/watch?v=iNjdfwCJpG4&t=71s)]
 ### aQUI TUDO DO MAL DEPOIS OS BR FODOES
