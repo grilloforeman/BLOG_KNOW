@@ -42,4 +42,4 @@ QUERENDO SER O MAIOR DE TODOS NESSE NEGOCIOS. OU A MELHOR OU O MELHOR
 DENTRO DO CONTEXTO, ESSE TEMPO DE SEILA PODERIA TER SIDO O MAIOR DE
 TODOS IGUAL O FILME CEGUERIA...
 
-![entendam](https://www.reddit.com/r/brasil/comments/1but7tg/compara%C3%A7%C3%A3o_rua_s%C3%A3o_clemente_rio_de_janeiro_brasil/#lightbox)
+![entendam](https://preview.redd.it/compara%C3%A7%C3%A3o-rua-s%C3%A3o-clemente-rio-de-janeiro-brasil-1880-vs-v0-8dy2du3ds9sc1.jpg?width=960&format=pjpg&auto=webp&s=50ac5f5a71700ffcee524f2dc132b4b152bf82ed)
