@@ -43,3 +43,20 @@ DENTRO DO CONTEXTO, ESSE TEMPO DE SEILA PODERIA TER SIDO O MAIOR DE
 TODOS IGUAL O FILME CEGUERIA...
 
 ![entendam](https://preview.redd.it/compara%C3%A7%C3%A3o-rua-s%C3%A3o-clemente-rio-de-janeiro-brasil-1880-vs-v0-8dy2du3ds9sc1.jpg?width=960&format=pjpg&auto=webp&s=50ac5f5a71700ffcee524f2dc132b4b152bf82ed)
+
+
+### ENTENDAM E PSICOLOGICO FILOSOFICO
+
+oS manos participame dessas porras, tem os cabeças e no final muitos
+sao gado de certa forma, os caras seila qual área estão, sendo politicos
+ou gambe ou seila, a cidade agroda é coisa de mulherzinha, os manos
+consomente whisky desde o kobal dos grandes artistas de rock, mano
+voce tem que sentir mesmo por isso dessas porras, o meu ponto de vista
+e essa merda mesmo.. eu tenho mais de 1.80 cara o que vejo um bando de 
+anão, tu olha caralho que mulher gostosa perde a concentração caralho
+no final nao é gostosona um rosto igual ASIÁTICO COMUM, CARA DE BURRO!!!
+EU ACREDITO QUE BURRO TEM CARA. CARALHO SER ATLETA SEILA FODA, MAIS
+NAO ESQUECE QUE TU VAI TER QUE CHUPAR PAU DOS POLICTIOCS COM OBJETIVO
+DE PATROCINAR, DIVULGAR SEILA O QUE, CARALHO ACONTECEM OS NEGOCIOS
+TORCIDAS OS MANOS SEILA, GANHAM EMPREGO PARA ZOAR OS MALUCOS. O NEOGCIO
+AQUI É LIXOOO MUITO DIFERENTE DE UMA SOCIEDADE  MASI SEILA...
