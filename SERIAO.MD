@@ -19,7 +19,7 @@ TODOS QUEREM A BOA... VOCE NAO FOR DO FECHAMENTO TALVEZ QUANDO
 SEILA,
 
 
-![CEGUERIA](cegueira.jpg)
+![CEGUERIA](cegueira.png)
 
 O negocio tem o funcionamento, a cidade é assim pelo menos uns
 50 anos, os malucos pensam, voce na sua rotina o TIROTEIOS, ANTES
