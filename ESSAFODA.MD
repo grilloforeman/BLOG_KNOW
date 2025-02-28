@@ -202,4 +202,4 @@ IMAGINA QUE DESEJO BR E LEVARF PARA LONDRES, CARALHO O DINEHIRO VIAJANDO E CASO 
 LADO E VOCE PEGA, NO MAXIMO ENTRE ELES QUE SEILA QUANDO OCORRE NECESSIDADE DE HAVER MOVIMENTACA. SEILA LAVAGEM..
 
 
-[![MAGO](https://en.wikipedia.org/wiki/File:Ehpalladium.jpg)](https://www.youtube.com/watch?v=AkJBKQhflZc)
+[![MAGO](https://upload.wikimedia.org/wikipedia/en/1/19/Ehpalladium.jpg)](https://www.youtube.com/watch?v=AkJBKQhflZc)
