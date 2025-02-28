@@ -160,6 +160,17 @@ vivendo e de certa forma ainda colocando o dinheiro, CASO TENHA UMA EMPRSA
 OU SEJA PROGRAMADOR QUE O VALOR VAI SER MAIOR.. ENTAO É UMA PIRAMIDE QUE VOCE
 SOBREVIVE E AINDA CRESCE
 
+Explicar de outra vez. Voce tem 100k no final dentro de 13,08 de joros
+vai ter 184k.
+O lucro 84 dentro de 5 anos ou seja 5 periodos de anos. voce divide entre
+o inicio de pegar esse investimento e o inicio de comecar outro. ou seja
+vai epserar 5 anos e depois vai fazer outro investimenoto, a taxa de juros
+vai ser outra. Os 100k  continum, mais voce pode continuar colocando dineheiro
+e, a questao que alguns investimentos tem o valor de cobertura que acho que
+aqui é proximo de 300k..
+
+##### RENDA FIXA.
+
 
 ## ENTANDAM O OBJETIVO DE COLOCAR ESSAS COISAS
 
