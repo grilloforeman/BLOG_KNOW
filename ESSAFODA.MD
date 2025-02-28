@@ -194,3 +194,10 @@ TODAS AS MOEDAS VOCE PODE USAR O GOOGLE basta "digitar valor moedas hoej" elas s
 muitro rápido,, tipo venezuela...
 
 
+O que sei e que tem gente que manipula algumas moedas, eles vazem grande movimentcao de compra e acaba subindo, hoje os bancos
+tambem usam critomoedas em transaçoes internacionas entre eles. muitas cassa de remessa credito que usam essa forma tambem,
+o problema é a variacao mais pode dependendo caso seja MONERO VOCE FICAR MEIO QUE SEILA DO CONTROLE...
+
+IMAGINA QUE DESEJO BR E LEVARF PARA LONDRES, CARALHO O DINEHIRO VIAJANDO E CASO NAO VIAJE MAISM TENHA AQUI MUITO OU AQUELE
+LADO E VOCE PEGA, NO MAXIMO ENTRE ELES QUE SEILA QUANDO OCORRE NECESSIDADE DE HAVER MOVIMENTACA. SEILA LAVAGEM..
+
