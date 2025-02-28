@@ -161,5 +161,10 @@ OU SEJA PROGRAMADOR QUE O VALOR VAI SER MAIOR.. ENTAO É UMA PIRAMIDE QUE VOCE
 SOBREVIVE E AINDA CRESCE
 
 
+## ENTANDAM O OBJETIVO DE COLOCAR ESSAS COISAS
 
+O DINHEIRO seja bitcoin ou criptomoedas, sabe, existe o tal do de-fi onde voce
+uma pessoa normal pode emprestar o dinheiro, voce pode pegar dinheiro nao
+somente dos bancos ou instituiçoes financeiras, entao é necessario entender,
+sera que é assim, somente uma VISAO...
 
