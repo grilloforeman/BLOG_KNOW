@@ -168,3 +168,16 @@ uma pessoa normal pode emprestar o dinheiro, voce pode pegar dinheiro nao
 somente dos bancos ou instituiçoes financeiras, entao é necessario entender,
 sera que é assim, somente uma VISAO...
 
+VOCE PODE TER O SEUS SISTEMA DE EMPRESTIMO DE DINHEIRO,, OU ENTENDER BITCOINS,
+CARAMBA POR QUE NAO FALEI, CARALHO SABE...
+
+
+[cALCULADORAUTIL](https://investidorsardinha.r7.com/calculadoras/calculadora-de-juros-compostos/)
+
+O NEGOCIO TEM VARIAS CASAS DECIMAIS.. A DIREITA.
+
+O NOSSO DINHEIRO MESMO TENDO MOEDAS ABAIXO DO 1. VOCE NAO PEGA O 1 E QUEBRA ELE.
+O BITCOIN SIM... 1 DOLLAR CUSTA SEILA 6 REAIS. MAIS 1 BITCOIN CUSTA SEILA 30K DE DOLARES,
+ESSE 1 BITCOIN VOCE PODE COMPRAR FRACAO DELE. cARALHO A QUESTAO COMPRAR E VENDER COMPRAR
+E VENDER BASTA CALCULAR, 
+
