@@ -107,4 +107,39 @@ VOCE VIVE O LGOPD O SCRUM OU SEILA OUTROS DIVERSOS, ESSES DAQUI, MAIS AQUI OUTRO
 SABE A AXELOS, E TAL, VOCE ACABA VENDO... oS MALUCOS FALANDO DE SEILA O QUE NO FINAL AS LEIS SENDO APROVADAS E NO FINAL
 E TU, O PIX, AS CRIPTOMOEDAS E VOCE... CARALHO NO FINAL É TU DE CERTA FORMA...
 
+IGUAL QUERENDO CONHECER O RITCHIE BLACKMORE, SABE É FODA E NO FINAL TODOS TENTANDO ENTENDER E A COISA É SIMEPLES.
+JUROS SIMPLES, JUROS COMPOSTOS TEM OUTRAS MASI NO FINAL NA PONTA ISSO QUE COMANDA,
+
+JOROS = VALOR + ( 1 + JUROS) ^ PERIODO.
+
+CONTA = 30K + ( 1 + 0,1308) ^5 = 55.468,9894446252770304
+
+
+outra forma
+
+10k de entrada e todo mes 334 = 30k
+
+voce ganha R$15.988,81
+
+
+
+
+agora roubando com taxa de juros de 1,29 por mes em 13 meses
+voce vai pagar 5.791,92
+
+
+ou seja ate pagando e pegando emprestimo dependendo do calculo voce
+pode investir e ganhar mais, depende da taxa de juros que paga o emprestimko
+e do investimento recebendo. aqui esta alta mais de 10%
+
+
+Sabe euy criei 2 forma de quase piramide de investijmento. A primeira um grupo,
+voce tem 12 meses e 12 pessoas, voce tem o valor base 30k, dividindo 30k por 12
+igual 2,5 k. Todos os 12 do grupo pagam 2,5 k por mes. logo os primeiros vao
+ter 30k... caso seja uma piramide para ter um valor maior e investir. saiba
+que esses investimento cdb cdi tesouro a base do caluclo é anual nao mesnal;;
+logo depois de certo tempo os ultimos meio que se pagam, a questao que tem
+o erro de alguem sair da piramide o que quebraria, logo entendam que teria
+que ser um valor maior para cobrir esse erro, o resto depois poderia voltar
+para os proprios no final.
 
