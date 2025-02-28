@@ -75,3 +75,11 @@ DE OTARIOS, OS OTARIOS QUE TEM UMA METRALHADORA NA BOCA, e sao gente as vadias q
 igal a funkeira,, OS OTARIOS que nao fazem nada alem de cozinHAR ASSISTIR NOVELA. ou alguma bosata de 
 seial, oS OTARIOS QUE NAO INVESTGIRAM EM NADA, amam e TODOS AS COISAS DE VIDA. buceta, XIFRE, BROXAO,,
 epsoas deixou, VIDA CHATA DE MERDA... uma merda. AS VADIAS QUE SABE
+
+
+
+
+oS MONGOU AGROA TODOS EGANGELICOAS ESSAS BOSTA OS MALUCO DA GLOBO VIRANDO EGVANGELICOS CONTRATAM UMS
+NORDESTINOS OTARIOS QUE casa nao tem, depois estao em 2 lugares, sabe é foda,, as mulheres que sabe,
+normais, encontram um otariozao esperto que saiu da FAVELA, ENCONTROU OU ARRUMOU UMA CASA ONDE VIVER,
+ISSO É SER EXPERTO.
