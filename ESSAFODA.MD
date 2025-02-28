@@ -145,3 +145,21 @@ o erro de alguem sair da piramide o que quebraria, logo entendam que teria
 que ser um valor maior para cobrir esse erro, o resto depois poderia voltar
 para os proprios no final.
 
+### pIRAMIDE 2
+
+
+Outra sua vamos dizer que voce tenha 100k no juros de 13,08 que ja ocorreu.
+o valor der retorno seria R$184.896,631482084256768. 84 de juros em 5 periodos
+ou seja 5 anos.
+
+voce pode dividir esses 84k por 5 anos ou seja 60 meses, e no final investir 
+de novo, voce vai ter quse um salario minimo, caralho tem gente que acha
+vou pagar cerveja para mulher otaria, bando de lixo.. e ridiculo... bando de otaria.
+Voce cria um sistema que voce sobrevive, dependendo do valor voce pode continuar,
+vivendo e de certa forma ainda colocando o dinheiro, CASO TENHA UMA EMPRSA
+OU SEJA PROGRAMADOR QUE O VALOR VAI SER MAIOR.. ENTAO É UMA PIRAMIDE QUE VOCE
+SOBREVIVE E AINDA CRESCE
+
+
+
+
