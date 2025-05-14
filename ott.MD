@@ -12,7 +12,8 @@ agaradas ao social, familia, chatas com pensamentos do que acham e nao possuem v
 ![OLHA](otario.png)
 
 
-# A politica LOCAIS
+## A politica LOCAIS
+
 A poiltica e estranha tem muitos que tem atitudes sao play, no final sao motoqueiros, e tudo
 acontece, alguns morrem, e no final estão relacionados com boca de urna, as piranhas andando com
 os otarios que fazem politica, e voce e obrigado ter a mesma vida de otario, nao viajam nao fazem
@@ -26,3 +27,11 @@ estar perto dos caras, talvez....
 Tem uns babaquinhs que tem grupo de seguranca e seila a regiao, nao tenho o que falar, o que acho
 talvez alguns seguidores da regiao, idiotas coloca o que somente acha e que consegue ver, uns
 bostões seguido por muitos bostas.
+Voce não é bonito, talvez tudo que aproximou sao pessoas bem feias, nao interessantes, todas pessoas
+sem personalidade que talvez seila, igual favela, tem o seu sentido, tem o seu sentido igual 
+Bach, uns poucos, voce vive, mais sabe tudo pode mudar a observacao ao longo do tempo, hoje
+voce....
+
+Existem coisas alem do valor, mais sabe os caras somente vivem uma vida de merda, com uma esposas
+ou seila de merda, independente da inteligencia voce vive algo diferente, viajando sozinho ou
+em grupo...
