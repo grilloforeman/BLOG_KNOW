@@ -18,3 +18,7 @@ acontece, alguns morrem, e no final estão relacionados com boca de urna, as pir
 os otarios que fazem politica, e voce e obrigado ter a mesma vida de otario, nao viajam nao fazem
 qualquer coisa, e o papo e o mesmo, a causa o erro de nao serem ou terem feito qualquer coisa
 conehco alguns que apesas da inteligencia tem a vida de monotonia, e nao conseguem sai disso.
+
+AS piranhas fazendo revolucao e hoje o que elas tem de mais precioso é o tempo que nao existe mais,
+vida que ..... tudo é questao de saber viver, aquela múscia, talvez estar no local de algo, talvez
+estar perto dos caras, talvez....
