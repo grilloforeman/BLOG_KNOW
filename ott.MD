@@ -14,7 +14,7 @@ agaradas ao social, familia, chatas com pensamentos do que acham e nao possuem v
 
 # A politica LOCAIS
 A poiltica e estranha tem muitos que tem atitudes sao play, no final sao motoqueiros, e tudo
-acontece, alguns morrem, e no final estão relacionado com boca de urna, as piranhas andando com
+acontece, alguns morrem, e no final estão relacionados com boca de urna, as piranhas andando com
 os otarios que fazem politica, e voce e obrigado ter a mesma vida de otario, nao viajam nao fazem
 qualquer coisa, e o papo e o mesmo, a causa o erro de nao serem ou terem feito qualquer coisa
 conehco alguns que apesas da inteligencia tem a vida de monotonia, e nao conseguem sai disso.
