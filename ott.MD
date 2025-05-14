@@ -22,3 +22,7 @@ conehco alguns que apesas da inteligencia tem a vida de monotonia, e nao consegu
 AS piranhas fazendo revolucao e hoje o que elas tem de mais precioso é o tempo que nao existe mais,
 vida que ..... tudo é questao de saber viver, aquela múscia, talvez estar no local de algo, talvez
 estar perto dos caras, talvez....
+
+Tem uns babaquinhs que tem grupo de seguranca e seila a regiao, nao tenho o que falar, o que acho
+talvez alguns seguidores da regiao, idiotas coloca o que somente acha e que consegue ver, uns
+bostões seguido por muitos bostas.
