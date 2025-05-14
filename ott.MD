@@ -35,3 +35,6 @@ voce....
 Existem coisas alem do valor, mais sabe os caras somente vivem uma vida de merda, com uma esposas
 ou seila de merda, independente da inteligencia voce vive algo diferente, viajando sozinho ou
 em grupo...
+
+
+Voce ja fez algo grande na vida!!! OU ja foi famoso!!! Isso significa algo!!! Voce percebe!!!
