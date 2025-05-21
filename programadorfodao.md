@@ -149,5 +149,5 @@ gestos nassao, tradicao bando de retardado, ou outros seila 7
 gestos de macados o negocio é ruim,. musica de grandes otarios de sambistas
 amigos de rede globo...
 
-
+[![massacration](Gemini_FODAO.png)
 
