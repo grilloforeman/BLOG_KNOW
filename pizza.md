@@ -2,15 +2,15 @@
 
 Voice tem uma pizza inteira, talvez venda pizza.
 voce trabalha no mercado de vendas de pizza de alto valor e pode esperar o valor subir. 
-Entenda vender ela toda vale mais.. vender em partes fica como, entre voce vender e comprar também. o  que eu falo faz como.
+Entenda vender ela toda vale mais.. vender em partes fica como!! entre voce vender e comprar também. o  que eu falo!!!
 
 
 1 pizza cuta $$100 de algo.
 
-e voce pode fatiar seila em 4 casas decimais.
+esse mercado aqui tem até 4 casas decimais, uma hipótese.
 Vamos dizer você tem 25 ou seja 1/4 dela.
 
-Vamos  dizer que subir para 1500, hoje voce tem 375 de algo.
+Vamos  dizer que subiu para 1500, hoje voce tem 375 de algo.
 voce resolver vender 50% da sua parte entao voce em pegou quanto 187,5.
 Vamos dizer que voce comprar mais a frente e custa 1100. vc compra 10% ou seja 110.
 
