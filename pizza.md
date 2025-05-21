@@ -23,7 +23,7 @@ Ela cheogou  no valor de $1100, e voce resolveu comprar 10% ou seja $110.
 
 Qquanto voce tem hoje? 10% + 12,5% de $1100 = 1100 x 0,225 = $247,5
 
-Caso nao vende-se voce teria 10% + 25% de 1100 = $385
+Caso nao vende-se voce teria 10% + 25% de 1100 = $385 ou seja 35% da fatia da pizza. Cada parte que voce tem voce tem mais o valor mudou.
 
 OU SEJA VALE VENDER!!! ISO QUE DESEJAVA FALAR. COISA BÀSICA
 
