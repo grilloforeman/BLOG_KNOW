@@ -28,3 +28,6 @@ Caso nao vende-se voce teria 10% + 25% de 1100 = $385
 OU SEJA VALE VENDER!!! ISO QUE DESEJAVA FALAR. COISA BÀSICA
 
 
+![PIZZAPORTUGUESA](https://p2.trrsf.com/image/fget/cf/774/0/images.terra.com/2023/06/03/608007425-tamanho-padrao-gc-45.jpg)
+
+
